@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports, music, computers and video games
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on nothing at the moment
-- 📫 How to reach me through canvas is the best way
+- 📫 How to reach me rasul.alhark@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i have 4 children
 
